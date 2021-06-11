@@ -1,0 +1,1 @@
+# sozio_covid_aargau
